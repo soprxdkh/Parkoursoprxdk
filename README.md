@@ -1,2 +1,1 @@
-# Parkoursoprxdk
-Parkour made sopr x dk and channel name sopr x dk 
+باركور سوبر اكس دي كي القناة سوبر اكس دي كي
